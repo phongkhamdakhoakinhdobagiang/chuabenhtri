@@ -14,5 +14,10 @@ http://phongkhamkinhdo.vn/ap-xe-hau-mon-la-benh-gi/
 
 
 
+http://phongkhamkinhdo.vn/dia-chi-chua-tri-noi-uy-tin/
+
+
+
+
 http://phongkhamkinhdo.vn/dieu-tri-tri-noi-het-bao-nhieu-tien/
 http://phongkhamkinhdo.vn/phuong-phap-dieu-tri-tri-noi/
