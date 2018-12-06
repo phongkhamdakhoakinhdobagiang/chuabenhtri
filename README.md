@@ -7,3 +7,6 @@ http://phongkhamkinhdo.vn/nguyen-nhan-bi-tri-noi/
 
 
 http://phongkhamkinhdo.vn/tac-hai-cua-benh-tri-noi/
+
+
+http://phongkhamkinhdo.vn/dieu-tri-tri-noi-het-bao-nhieu-tien/
