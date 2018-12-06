@@ -21,3 +21,9 @@ http://phongkhamkinhdo.vn/dia-chi-chua-tri-noi-uy-tin/
 
 http://phongkhamkinhdo.vn/dieu-tri-tri-noi-het-bao-nhieu-tien/
 http://phongkhamkinhdo.vn/phuong-phap-dieu-tri-tri-noi/
+
+
+
+
+
+http://phongkhamkinhdo.vn/nguyen-nhan-gay-ap-xe-hau-mon/
