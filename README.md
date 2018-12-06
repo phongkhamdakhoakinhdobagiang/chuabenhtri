@@ -23,7 +23,7 @@ http://phongkhamkinhdo.vn/dieu-tri-tri-noi-het-bao-nhieu-tien/
 http://phongkhamkinhdo.vn/phuong-phap-dieu-tri-tri-noi/
 
 
-
+http://phongkhamkinhdo.vn/trieu-chung-benh-ap-xe-hau-mon/
 
 
 http://phongkhamkinhdo.vn/nguyen-nhan-gay-ap-xe-hau-mon/
