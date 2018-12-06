@@ -32,3 +32,9 @@ http://phongkhamkinhdo.vn/nguyen-nhan-gay-ap-xe-hau-mon/
 
 
 http://phongkhamkinhdo.vn/tac-hai-cua-benh-ap-xe-hau-mon/
+
+
+
+
+
+http://phongkhamkinhdo.vn/phuong-phap-dieu-tri-ap-xe-hau-mon/
