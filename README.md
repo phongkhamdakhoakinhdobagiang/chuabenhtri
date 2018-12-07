@@ -34,7 +34,7 @@ http://phongkhamkinhdo.vn/nguyen-nhan-gay-ap-xe-hau-mon/
 http://phongkhamkinhdo.vn/tac-hai-cua-benh-ap-xe-hau-mon/
 
 
-
+http://phongkhamkinhdo.vn/chi-phi-chua-tri-hon-hop/
 
 
 http://phongkhamkinhdo.vn/chi-phi-dieu-tri-ap-xe-hau-mon/
